@@ -1,5 +1,5 @@
 ### Hello!!! Welcome to my profile, my dear Pony.town player!! If you're here you might want to know some things about myself.. I will provide that!! 
-My favourite characters are HABIT from EverymanHybrid, Super Pochaco by Nitroplus and Legoshi from Beastars!! along some others that aren't really my current obsession...
+My favorite characters are HABIT from EverymanHybrid, Super Pochaco by Nitroplus and Legoshi from Beastars!! along some others that aren't really my current obsession...
 I have social anxiety, so please forgive me if I'm not a really nice person to talk to! Sometimes I get really embarassed!!!
 You will find me somewhere in the bakery, or around it! It's my favorite hangout spot!
 

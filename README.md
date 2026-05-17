@@ -1,4 +1,9 @@
-## Hi there 👋
+### Hello!!! Welcome to my profile, my dear Pony.town player!! If you're here you might want to know some things about myself.. I will provide that!! 
+My favourite characters are HABIT from EverymanHybrid, Super Pochaco by Nitroplus and Legoshi from Beastars!! along some others that aren't really my current obsession...
+I have social anxiety, so please forgive me if I'm not a really nice person to talk to! Sometimes I get really embarassed!!!
+You will find me somewhere in the bakery, or around it! It's my favorite hangout spot!
+
+![Alt text](https://i.pinimg.com/originals/1d/f6/08/1df6083450d371e8f9f351900dcb4e37.gif)
 
 <!--
 **CryptidGod/CryptidGod** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

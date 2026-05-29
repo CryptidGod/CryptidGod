@@ -1,4 +1,4 @@
-### Hello!!! Welcome to my profile, my dear Pony.town player!! If you're here you might want to know some things about myself.. I will provide that!! 
+### Hellooo!! Welcome to my profile my dearest pony.town player!! Here are some things about myself.
 My favorite characters are HABIT from EverymanHybrid, Super Pochaco by Nitroplus and Juno from Beastars!! along some others that aren't really my current obsession...
 Most of the times I leave pony.town running in the background while I do something else so please whisper to talk to me!! 
 

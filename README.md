@@ -1,8 +1,19 @@
-### Hellooo!! Welcome to my profile my dearest pony.town player!! Here are some things about myself.
-My favorite characters are HABIT from EverymanHybrid, Super Pochaco by Nitroplus and Juno from Beastars!! along some others that aren't really my current obsession...
-Most of the times I leave pony.town running in the background while I do something else so please whisper to talk to me!! 
+### Hellooo!! Welcome to my profile, my dearest pony.town player!! Here are some things about myself.
+The characters I'm currently obsessed with are Habit from EverymanHybrid and Super Pochaco by Nitroplus!!
 
-![Alt text](https://i.pinimg.com/originals/1d/f6/08/1df6083450d371e8f9f351900dcb4e37.gif)
+I also really enjoy internet horror! I'm very interested in old internet screamer videos! 
+
+Most of the time, I leave pony.town running in the background while I do something else, so PLEASE PLEASE PLEASE if you're going to talk to me please whisper!!
+
+<img width="540" height="220" alt="legosistopmotion" src="https://github.com/user-attachments/assets/83ed3486-cab7-4881-9d33-b5eb4d902dff" />
+
+
+
+
+
+
+
+
 
 <!--
 **CryptidGod/CryptidGod** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

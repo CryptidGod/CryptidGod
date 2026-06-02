@@ -1,5 +1,5 @@
 ### Hellooo!! Welcome to my profile, my dearest pony.town player!! Here are some things about myself.
-The characters I'm currently obsessed with are Habit from EverymanHybrid and Super Pochaco by Nitroplus!!
+The characters I'm currently obsessed with are Habit from EverymanHybrid and Super Pochaco by Nitroplus!! You might find me as a pony of one of these 2!!
 
 I also really enjoy internet horror! I'm very interested in old internet screamer videos! 
 

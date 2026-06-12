@@ -3,7 +3,7 @@ The characters I'm currently obsessed with are Habit from EverymanHybrid and Sup
 
 I also really enjoy internet horror! I'm very interested in old internet screamer videos! 
 
-Most of the time, I leave pony.town running in the background while I do something else, so PLEASE PLEASE PLEASE if you're going to talk to me please whisper!!
+Most of the time, I leave pony.town running in the background while I do something else, so PLEASE PLEASE PLEASE if you want to speak to me /whisper!!
 
 <img width="540" height="220" alt="legosistopmotion" src="https://github.com/user-attachments/assets/83ed3486-cab7-4881-9d33-b5eb4d902dff" />
 

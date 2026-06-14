@@ -1,11 +1,13 @@
-### Hellooo!! Welcome to my profile, my dearest pony.town player!! Here are some things about myself.
-The characters I'm currently obsessed with are Habit from EverymanHybrid and Super Pochaco by Nitroplus!! You might find me as one of these 2!!
+  ### Hellooo!! Welcome to my profile, my dearest pony.town player!! 
+  The characters I'm currently obsessed with are Habit from EverymanHybrid and Super Pochaco by Nitroplus!! You might find me as one of these 2!! <img width="40" height="40" alt="YUM" src="https://github.com/user-attachments/assets/97a99355-c268-4760-8a1b-cba17dc3effd" />
 
-I also really enjoy internet horror! I'm very interested in old internet screamer videos! 
+  I also really enjoy internet horror! I'm very interested in old internet screamer videos!  
 
-Most of the time, I leave pony.town running in the background while I do something else, so PLEASE PLEASE PLEASE if you want to speak to me /whisper!!
+  Most of the time, I leave pony.town running in the background while I do something else, so PLEASE PLEASE PLEASE if you want to speak to me /whisper!!
 
-<img width="540" height="220" alt="legosistopmotion" src="https://github.com/user-attachments/assets/83ed3486-cab7-4881-9d33-b5eb4d902dff" />
+
+ <img width="636" height="376" alt="cutieflyoughh" src="https://github.com/user-attachments/assets/2527b485-a290-4b44-945b-74733637fe45" />
+
 
 
 

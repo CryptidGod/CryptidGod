@@ -1,5 +1,5 @@
   ### Hellooo!! Welcome to my profile, my dearest pony.town player!! 
-  The characters I'm currently obsessed with are Habit from EverymanHybrid and Super Pochaco by Nitroplus!! You might find me as one of these 2!! <img width="40" height="40" alt="YUM" src="https://github.com/user-attachments/assets/97a99355-c268-4760-8a1b-cba17dc3effd" />
+  The characters I'm currently obsessed with are Habit from EverymanHybrid, Super Pochaco by Nitroplus and Izutsumi from Dungeon Meshi!! You might find me as one of these 3!! <img width="40" height="40" alt="YUM" src="https://github.com/user-attachments/assets/97a99355-c268-4760-8a1b-cba17dc3effd" />
 
   I also really enjoy internet horror! I'm very interested in old internet screamer videos!  
 

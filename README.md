@@ -5,7 +5,8 @@
 
   Most of the time, I leave pony.town running in the background while I do something else, so PLEASE PLEASE PLEASE if you want to speak to me /whisper!!
 
-<img width="165" height="252" alt="goosey!!" src="https://github.com/user-attachments/assets/fa60c1b6-8fbf-49eb-a13e-1a5c141ed51c" />
+<img width="250" height="188" alt="celosiaorcenobiaidk" src="https://github.com/user-attachments/assets/23b4e642-08c4-4562-8b3d-fb47948e4be4" />
+
 
 
 

@@ -1,5 +1,5 @@
   ### Hellooo!! Welcome to my profile, my dearest pony.town player!! 
- I am obsessed with many fictional characters! I use all of them as ponies to sit around and people-watch!! <img width="40" height="40" alt="YUM" src="https://github.com/user-attachments/assets/97a99355-c268-4760-8a1b-cba17dc3effd" />
+ I am obsessed with many fictional characters! I use all of them as ponies to sit around near the Bakery <img width="40" height="40" alt="YUM" src="https://github.com/user-attachments/assets/97a99355-c268-4760-8a1b-cba17dc3effd" />
 
   I also really enjoy internet horror! I'm very interested in old internet screamer videos!  
 
